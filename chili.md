@@ -1,7 +1,8 @@
+# Chili
 Best goddamn chili on this side of the planet.
 
 Ingredients
------------
+===========
 - 2 lbs (0.5-1kg) of ground beef, loose - season to taste
 - 1x large onion, minced
 - 3x cans of kidney beans, juice & all
@@ -13,7 +14,7 @@ Ingredients
 - Water to desired consistency
 
 Instructions
-------------
+============
 1. Brown beef and drain, set aside
 2. Sautée onion in beef drippings
 3. Add back in beef, all beans, chili powder, crushed tomatoes, garlic, and water
