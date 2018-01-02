@@ -8,14 +8,16 @@ Ingredients
 - 4x medium eggs
 - 255g caster sugar
 
-###Flavourings
-
-####Lemon drizzle
+Flavourings
+===========
+Lemon drizzle
+-------------
 - 185g caster sugar
 - juice from 2 medium lemons
 
-####Coffee
--Camp coffee
+Coffee
+------
+- Camp coffee
 
 Instructions
 ============
