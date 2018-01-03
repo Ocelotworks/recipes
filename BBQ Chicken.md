@@ -1,4 +1,4 @@
-#BBQ Chicken
+# BBQ Chicken
 Can be used as a sandwich filler or is delicious when used to make a salad.
 
 Ingredients
