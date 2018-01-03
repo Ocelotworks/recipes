@@ -4,7 +4,7 @@ Probably overly complex but still pretty good
 
 Ingredients
 -----------
-- 1.5kg Mince beef 
+- 750g Mince beef 
 - 1 large onion sliced 
 - 1 can of kidney beans
 - 1 can of pinto beans
