@@ -19,4 +19,4 @@ Method
 6. Leave the batter to sit for half an hour for a better batter or cook immediately
 7. Add the batter to a hot pan that has been greased with butter
 8. Once the batter on the top is no longer completely liquid, flip the pancake to cook the other side
-9. Serve with your favourite toppings such as lemon juice, nutella, banana, strawberry or syrup
+9. Serve with your favourite toppings such as lemon juice, chocolate spread, banana, strawberry or syrup
