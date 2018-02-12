@@ -3,10 +3,10 @@ Can be used as a sandwich filler or is delicious when used to make a salad.
 
 Ingredients
 ===========
-1. Chicken Breast (Use as much as you want, this can be refrigerated or frozen)
-2. BBQ Seasoning
-3. Your favourite BBQ sauce
-4. A Splash of Vegetable Oil
+- Chicken Breast (Use as much as you want, this can be refrigerated or frozen)
+- BBQ Seasoning
+- Your favourite BBQ sauce
+- A Splash of Vegetable Oil
 
 Instructions
 ============
