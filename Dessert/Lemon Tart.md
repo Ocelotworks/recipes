@@ -6,17 +6,30 @@ Ingredients
 For the pastry (makes double)
 -----------------------------
 500g plain flour, plus extra for dusting
+
 140g icing sugar
+
+
 250g unsalted butter, cubed
+
+
 4 egg yolks
 
 
 For the filling
 ---------------
 5 eggs
+
+
 140g caster sugar
+
+
 150ml double cream
+
+
 juice 2-3 lemon (about 100ml)
+
+
 2 tbsp lemon zest
 
 Method
