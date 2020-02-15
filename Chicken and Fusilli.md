@@ -5,7 +5,7 @@ Ingredients
 - 2 tbsp butter
 - 2 tbsp vegetable oil
 - 12oz chicken cut into thin strips
-- 8oz fusilli
+- 8oz fusilli col buco
 - 2 medium cloves of garlic (crushed)
 - 1 1/4 cup heavy cream
 - 1 cup chopped fresh basil or 1 cup fresh parsley and 2 tbsp of dried basil
