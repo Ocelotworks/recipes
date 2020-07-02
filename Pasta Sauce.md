@@ -14,5 +14,5 @@ Classic red sauce, easy to freeze and make a bunch of. Goes well with anything a
 # Recipe
 1. Dice onions, fine
 2. Cook onions using olive oil in a big pot until glazed
-3. Add cans of tomatos, dry ingredients, and 2x 28oz of water
+3. Add cans of tomatos, dry ingredients, cheese, and 2x 28oz of water
 4. Cook for ±1 hour
